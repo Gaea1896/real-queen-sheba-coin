@@ -1,1 +1,1 @@
-# real-queen-sheba-coin : SHEB
+# Real Queen Sheba Coin : SHEB
